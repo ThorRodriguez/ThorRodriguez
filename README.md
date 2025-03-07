@@ -18,11 +18,11 @@
 
 <br>
 
-- A experienced Front-end developer
+- An experienced Front-end developer
 - Playing Genshin Impact, Halo, Marvel Rivals, Gears of War, Mortal Kombar, etc. at spare time
 - Currently learning thoroughly Phython and Linux by my self
 - My [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/thor-aguilar/)
-- I’m currently open for a new job opportunity, this is [CV](https://www.canva.com/design/DAGhArlChJg/4kdzQxD2AQKsea8g3m1V7Q/edit?utm_content=DAGhArlChJg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- I’m currently open for a new job opportunity, here is my [Resume](https://www.canva.com/design/DAGhArlChJg/4kdzQxD2AQKsea8g3m1V7Q/edit?utm_content=DAGhArlChJg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 <br><br>
 
